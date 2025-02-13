@@ -1,3 +1,3 @@
 # krouzek2025
 
-s
+ss
